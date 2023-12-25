@@ -15,6 +15,7 @@ This repository compiles numerous websites where you can submit your products, a
 
 本文档长期更新，欢迎大家提交补充
 
+# 可免费提交
 
 
 ## 1：product hunt
@@ -23,7 +24,7 @@ This repository compiles numerous websites where you can submit your products, a
 
 
 
-![image-20231225105336625](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225105336625.png)
+![producthunt](https://lh3.googleusercontent.com/pw/ABLVV84Kls-_8k4NDuWxWJ79zA__BkDs-YMcJaw2FAim-EYw493vOQQIZ9fHccmn2Js7g6yW99PIN3XRGAkygbib17xc7Reu1lLZhFYUVb7juKomj8A0Ygx3zQtWHmkLHokhtL5mJab7aug2x-nCU52wXHdpoPk45A5UmzziR1NdWaEcxkn5rhZRaH7B-qWN8zIXUgZp4XQ4LsAxtjEDGHse1fgpSEyj0MYEPc3GT42RyVKxIOtTDbjr9y5Wnnw8VdrIUl084g256bgocUBtp5_qwP1kcq0Xx1n6NQdB3SWav3KFPWSiIADD1TzM0iS0Vm-ZOFqxfJNpNVWgrCcatvLUWTZ3wUx7AYlzuJOlE3RATfIGw1y5c-S56gUngD3kAZmK-Sa6p4PVXxsXt1FAKqjT1MgH6yPC2TKf3NW87z99ktX049TSBkk5CQlQmDBDNevXMqQdfkz_u_cwJdIZQQ6zxgduCSo14e_qpOnMMwo0cO_ckARQllIlfTurcC3-xszsfOh9ReZw92En4Bp_p8A3kl5E_eoZSwWf36IjmSg-QSBZnsbAmMhj4fcdERGe1uPfb8BORv_ytIHqArirSz44x4r4Hd4wHzG99z3kwpmpAhDdhEyJn6axypVj4uUhhZEgoih2GpXTeX5zOn86ayy_YVCf0E7BVOyQUbc4C_jJ-y-N9LjcViZXvwKtwusR3lgdRzOW2ySegFTQoxVuKoDqdTHbPVM5n5tNfz6Qznonp3a0uOLKpHECbdGXsYv1gzRHQ2wFTYRE6W-kiBQ3Rvz3H9oE5WUYyD1HfOWWG-Rr6YDPlk8eMVoiYrTrCXdU_EsCf9UhOLR42sycy2qgCghqryltAZU8GA2W4ziAFktvtv9EtDTGq7lggL4vrAGM1T00u1Wqcg=w1791-h428-s-no-gm?authuser=0)
 
 
 
@@ -37,7 +38,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 ## 2：http://toolsfine.com/
 
-![image-20231225105929140](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225105929140.png)
+![toolsfine](https://lh3.googleusercontent.com/pw/ABLVV86VPTt38X8JXor4h0ZVu3PWiE4Y75IhGqXQ_NmSMTsRXMV5bhDpNOTzYNScBSMzvlP6XnPVqX-k1OmXpJfH9wPJS_sM5eXjbb91dv-ODJsMPYUZkWztHRIXrD9rix6mTSPLsXXGDPaMoEDDiKA1IncttxV5ACBGz2LYjPj48ss4IPZnd47ltVYdErAP3FROFXV1piIo4d1ahsshBQj2igBKUy-kp1W4jwxrAjkKlwDEPDwbxia-dLpoVPdF_JEC0ynsP5OjAFO4U2IEF_cRG5LjwdG4nX5muwZZSEn5U90zTdkUhhjge4ArCr867qjmZ3zQoJi5VDPKjCHFyngm2l_4wRL6kxVwBTlu1rUuzV_3bLemTE5h5XxR5W4wIVQS2lvZmNmx7n4fu6lm6M7pIOpLA9SyUoEC6yedDIPgb4C60BC4oo8e7dSkroOMxJ_9k4g_JZrtanO1qVWM27cYWS5-R64-SybD8f07lUpc_hLGveYqbtjVini27rNmbFDUPZeyRAaeIsQgMA7de68CSeNfNYAqyPyDZV5QKgOhah76uOKR2LrnxBgrOk7obg3tstsjLSLXEQ84DPI-IRdl5-vy9UasY0oOIZlTJqCRkzq4KNQJOAOHWouNqCB4njOx5MEBMK4OIXx_8HYinvTskoaaHtJeRfizbGPkiirTEXdcoQbFMl_Bn6TZvyzNoQa3FoQafut0VDZIqA8Oaq6SRjZmozCWbc5Y_a7yXC_zPWygYbmKy1FB7B6rqrDNHj-rJRWTXMSzco2yjn1wUpYkW6o9lNGPtYFia0WMuNPyXyQ0-gaFNMM7sR5DITqLPD9pL_QBo37DybUDxR-BLDAMqtQtyuHkLereKFcvSYDTevOpCLwl08b9WkfJePh5BjUFlQbQKA=w1894-h864-s-no-gm?authuser=0)
 
 简介：AI 导航站
 
@@ -53,7 +54,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 
 
-![image-20231225110153633](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225110153633.png)
+![阮一峰周报](https://lh3.googleusercontent.com/pw/ABLVV84LFThOLHtUZ5y3_ull-il2Q0uG8LcRoATk3UxI2wkOBnW-Z8EbWg0RiZ7kMWtXV7xhDQwSw0Rh7qkLsYyAxz3pUO6tuIwafK71OpS2OLKnI1XNwx0Ba5l-Ot8VetDEreexqamLAFP9khf9Sy_XO2KiMKnfH0UdbTDSSFBx2hEqu19hWUUjGUIvrsYnnTVKfZ7wdD-ceD5Ip-Kh5SJ2OfQbNsyWMluIbJwKtZT8FcVw2eOmDhfHasgXTWE3VDKJyGLav-YRRruRUXfE7A7rHaM_nscxK6YFy00Z_hoPOncGx0u0n2RlIzziqgiupko0WjmbDu4lmRrixvg-rmoyaxFDiUcxwHPL_ccAkAcsUIY7A2SKM05md9W0LGGeeSNP2WAgLdyM9BA8qaoW-ep2mWrqrzbMTqY38pXdP7xYfZKtaOYSG2gdQMJENPFmZ8yMr9xFAxc6unBIgiPee7BkAIUHxvqEBJ8s4ihb78kcsMpHziUehveF0x1QPP3G2_q7MVrcgFNK972RRdNcbdU-4txMRGN5LIrSnZY3e4AajHnIONpc9DWiKaFppGMLLvF_U-bb5yXIYPqnvSKGgh4JCy_trdElXVQMyFYyizqUiyiMSRCwYmAtd4juZ6xqK1Mu1ncx76g0Gjt1jOeYKOTqqdfSM_RU0rSBLpUpfi8FoF39LMqQXcWaK3_gkHbYZ4I97gOS6KfLPdNGveQUugOMqKsP6EnrtiBpr5G1XOuGJbxgkmXoIIgCoz-U91IF2h_UmAMRmF2-g_uOmYVO_ZktpE7m06afcoNfvzu-g9om5Br-FhuNEMPDtGq0HofWU-f0aIEVIhb-7cafLt-o_3tdPq3LNnRaIbZV39slKasdJW7L4Rrc4sxkHrLiDy2X1rflYqYUig=w1349-h912-s-no-gm?authuser=0)
 
 
 
@@ -71,7 +72,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 
 
-![image-20231225110345694](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225110345694.png)
+![theresanaiforthat](https://photos.fife.usercontent.google.com/pw/ABLVV84RiYc4OGKgbJT7nKhCfxADnSoWc0A75A4IHfJnCYeKtLd5cR9kCAcO=w1866-h891-s-no-gm?authuser=0)
 
 
 
@@ -83,7 +84,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 收费情况：一周199美元。如果产品有收费服务，可以考虑上付费。
 
-![image-20231225110726661](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225110726661.png)
+![topai](https://photos.fife.usercontent.google.com/pw/ABLVV87zG3LyaME376lXwSOd-6CY3aN5rQhicEgLV1rP1hbw-A-LQ1hbJX08=w1893-h859-s-no-gm?authuser=0)
 
 
 
@@ -95,7 +96,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 收费情况： 一周199美元。
 
-![image-20231225111030677](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225111030677.png)
+![toolify](https://lh3.googleusercontent.com/pw/ABLVV87CE4y0ayxONdNmVoJyG1e-f9OpyMRMechyVx_O17Vbl4CVRzdQk32O452lCLbvHZ_GHb-TXUwYOqsmLAiTCkT52QlhCOrynBKq_2yW2CynCW5Qzr7x6i3wEXz7UqId7nhPp4D-J0JoW1u66mOi7uVPNyQqRSzsV7LuM-DNU8N-w3na2x5BP31yccHC-OaQBQO85UlCdmva5q2CacrjT0jGeBoy2BueVSbZobL0SjmIdg_W0-BV_Dw2H23gsYHxIEfclkHsMRCrvPRpmu_s6Ai4OuFQADAkYffm2vnIciw_w6jqDzvzXgL63zqXZkxcAHtYuEkapnkZ3phC5lpA0X5mLbR6_JPsiDjnkhKxigxkNdhcd2GLt3jffXhCsEu0pYXbqP7HWMpBWhnYGr1MxwtVcIfxSJhsOaSxQuNnUeNngfNU3VgQboyqmLpGkd8BJCK6jkHYEB7XqSqJZo4WKdFqtjs7ArlqByYQfKZdgQo293O66JzeklpXAvOS5Fa15y5OKYmjz82anm78rkPEuTCHBmM-zCVTa6TB96yFO8Jv7LD4mYGYSr4nDvyFWvwuU3sEA3131WP4BpblkHPzWbUkOJOf4GXSTZkudFQHeiuw6gOl4naPvn93bERsbdh_5V_LbMldojN87aiRVluRQMZNhRYAEem8-gkkvA-1Tco3WV4eDaOi7uA7HHumYoCjrM4kgk4nz-4ee9rgIV_bz3G-chAAqHeHv2BcLmETmUft-ePcJTBXg_6xPAMSzDq2LMYezaaCm4-FhfCXZsAiiQ2-qCl85FGUYogKBSwEaQ3fWz_RcH3UtSw7kPIRRGDTD6bm8j3VuaZ18Yg5ziGGvumA2GZ90sHQsiyc6Z_988k8l3gMxk4-Af2qR1sJbZp1-qqBWw=w1884-h878-s-no-gm?authuser=0)
 
 
 
@@ -105,7 +106,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 提交地址：https://aitoolhunt.com/addTool
 
-![image-20231225111358682](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225111358682.png)
+![aitoolhunt](https://photos.fife.usercontent.google.com/pw/ABLVV86pTaI81-C13PKAQA6wpbd0rILN5XK-0cmf_0Ujp9-zURCubeq6p5uu=w1899-h904-s-no-gm?authuser=0)
 
 
 
@@ -117,7 +118,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 收费情况：赞助100美元，首页展示30天
 
-![image-20231225111619244](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225111619244.png)
+![chatgptdemo](https://lh3.googleusercontent.com/pw/ABLVV84miVORK9AV3U1nO8eMKWsMKNZmedGX5npnMCVjzpJxj2zE8XWqH_15yFVZAFEIioKvWlwspp_JEe5_XJxhoiX9L22uz4TJzoz_Zl4LM3LQ9gLlSilF8Mv2ocyFZYPgSqusBsw3kIy1RoB3RiBuKnCc3nb-f3firmCmfcVRCNeql7g9ggjPIbDfV0Nt6Ng1ZUNqXYcX2Q2Z-iS4YqDSnUFq7GbjlstJ4Xse0TgB1tA62JmOdtmLIlsIbpORtB-IZS_gF3xyx3gsD1hYY_b6N_0Tgfz1fb4bfR81dTgrG-wxFs_ASm5Ea_-4cE4KdgmuQp0qOsWzFa-qNtOtGMM-2Lu6JUSyOjv8MqUiBUtibIUObBCahpkKYGY5o2McZovwV8g_gzS2rgtXOdVUPkAS_MemQOk-cXVyFA-ThvY00QhiuJPfFcTQIRo4woNiLQeZPQla2os6e9n026RMRiGoZNvtUjqVO8ZiTdg4-jocrAP7UQWI54hNeqagSYxMrQHz8aDWr5oNo7DMEFKuls540QM3QBsbZw0UOWxKAwQq34tNZhjdYrRXUyoxH0jo7ralAPt3viBTqd2bHi8HIPawY2OyoUKVAb8yae9HcnFuzQYCHXHkK5jd6jehGQ_hZoq1EKjOABVGjIUxQFAe9MKgytLITy0aFWfOxkC0d1kF4j3Ri81hBE_eNnDWxyQKCj4mchN0bJR0Fir5HzAx_8AZZ92m8_6mn4C_vDUo9WBV42O63uGHrpKtJvrutH6JgzfrFPXuT_YmtSSYrvq1MGj73e8Vnbn9ehAwOxGYsFgRMnbE3EbkJhRFg51ni2qciOwlU9MAujSdfj9fMJcoK0iYXGo0viqDJ_RuAZ6891beLtCztOdjswgyQ8twH0UwZpfgKFe07Q=w1889-h864-s-no-gm?authuser=0)
 
 
 
@@ -127,7 +128,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 **提交地址**：https://whattheai.tech/add-post/
 
-![image-20231225112016880](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225112016880.png)
+![whattheai](https://lh3.googleusercontent.com/pw/ABLVV86BkdxorsToDBA2yqx3idKneCC1mput8sCFCbO4G7Helt-nRrtFwmYbB4hNxp18B_HGcZeVDAyW4x1r0zoycCqN2EUK7wXf4wPv6QnJlhJWfkXGa9mOinRO9w0tMFQjGMxEC9NFCVCrgUNhYPlb6iuDhqyD_r9TDADiOhxvIdweTPJKK-vHNIuedCjYbGgaKwLAeLtM05L7iijOi6uurUdNH3AqffPR8mhof15GJB04WvScFgdwkPp-YjuaEdkKoITS2IEGasUWJejJKy9wMFJbsMsZGdX-Tw2hnhhb9XegViu2YfIxmeUMkFxFecsQ-n8ERNWImWfTwuABfRHrHJziBn2PNPGpV-7oschYNZzXaykbUqvvuf_axPYa3nA9uhhy0yYNdsoyMzANUtIQC4Uf2l3EXcjoFqM01yU7apyODV2dnoSuC07Ef4orOZbs801Ff0BwxeiaxbQAKACyK-_RfCHxG3KLePLZ1DcLkFfVSxyOCbvKarcT9LWX43M3D01bAyxlSH44E78eviG9JEqO3SdCxRK5m-CePu2n1_P08jqautuhgLYwUDSKYf1Z1j7a5226Ert6Pqp8nQL8MbquNLTJFY4syZ6kCM7AgVTb4I3sCjUm82Kz-fp4JKUaVO7dpSYEFSyrDnd5tQ30_c7vxufnhXRuGK_HSQj7VKxzJPN0r6prDKtpR-MmffuU7LplMbeZdtNkM-_Y8rc2DCRWLwfPogGx5O-QXt102JCR4zoFFwmAUYaLS1ZOHG_vZtpWebDosMiwreAINy6jwVyKCrxmX4ayHdbcNKB-G8OETP8KuSa6AnZtxP8flyP0eJ34slSoRGbadCP8ETMSW6UWKj0yrV8uI4AbMCNY4SViZnijs7GuSnrTXNMRScbC5gXijw=w1672-h844-s-no-gm?authuser=0)
 
 ## 10：https://www.advanced-innovation.io/
 
@@ -137,7 +138,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 
 
-![image-20231225112316461](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225112316461.png)
+![advanced-innovation](https://photos.fife.usercontent.google.com/pw/ABLVV86aRrS7fLeh2eoaqB84Ffm2YRs6zalK--judHKFQyYBnEx_e-bG0x33=w1604-h871-s-no-gm?authuser=0)
 
 
 
@@ -147,7 +148,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 **提交地址**：https://ai-hunter.io/submit-ai-tool/
 
-![image-20231225112505442](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225112505442.png)
+![aihunter](https://lh3.googleusercontent.com/pw/ABLVV87_MubMFkqqDQP0SGLf1zQFY6ZdHrtzO5V_dyWWU4Q2gF84AW6UUeK6re1UFFF3EzSnlA3NCPcUGHviiqDQsvqJCMYQiCDPXJjFjWUYPXM-2eTx0GFOz7wOo-KKex-O18ucqOVkykqiphUGe1oVM5ZiCruheaZcb8T_xgK9CB0-wStmWlNlI3h6Ob3RcWEXYJD3Y6LXEu5EiwJUPDBPEJZfospxw-wTKL8W2JBTT36HmKjdqYEc-2efx4eayFlFF4CAmUydlMbeQZQBDUfjPASEv0-yzIfmgj1lMXtG-URKWO52bx_t1xgDKfIBzcMCBYGTfd9_IOHbBzyjmjCf4BhP6_1FOy5KnioxZvgnoCNIcStv-Gz2ZVduFcvs3KicbgSuwEe69TfPpF0bO50klbW_qgV3mW2nTwEHimMmYac541rMf4a7j97VlUWmpk3CD7uYiSRBe4ISb0UD4WZLoDCDb09vuqjtk3bz5v0Qrg_uFuLZ2WYK8AWXAJmHcQO4sJTyaJ4-PWq88gT44jFE-Yak4dd43Sei7yOGkHaBfoPgjUD06GWVg7jPW3Wgg83m964xSBOJPCXmgRiYeOI_AgDl6dbe5J99JDNjo8KSLWXCjo3bvKiJBAmsLvueEJ72RR1PfwK0iAeQ6VrQY5vK4J822akliWlD_Ltp7RnfQ8-r_YObL69nXFFDBcL-4bsP-K3CCXlXTlIBsijp89ZAAa8lrlLEWwUigXFsArrm4UNhtvw28f5R8KVsPWglTNANJX5ujdIlUJnpE4QDJG0gnmsIH4ox3BZ1C6rehWXloz4ir_G8w_nCUzerDEzxTbSCM3Zl_5xefSzFJGbJgR8StHjiMDTjRARjMjlAFOd5IQcwf0F5lg8MbfOrg5F2JQqLSGpOSg=w1845-h899-s-no-gm?authuser=0)
 
 
 
@@ -159,7 +160,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 
 
-![image-20231225113007615](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225113007615.png)
+![aibucket]([C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225113007615.png](https://photos.fife.usercontent.google.com/pw/ABLVV84IYqD_HDJUVFmo46j10lCXME0QSQTxeeoTH21Ybiz0B5AcRRC0ww8J=w1911-h869-s-no-gm?authuser=0))
 
 ## 13：https://www.ainave.com/
 
@@ -171,7 +172,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 另外，这个站是从product hunt上采集的一些ai产品，如果你的产品已经发布在product hunt，很有可能会被该站收录。
 
-![image-20231225113148541](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225113148541.png)
+![ainave](https://lh3.googleusercontent.com/pw/ABLVV846LWDRtrcWluzrHGrgqHEYnGHOIaFAFpsG64gu3ZFXHq7uYmkGN_MNrzV4Y9ud8J7c0kfPrnHmPPkm4hDijl4Qe3Niip7AM54hHdm2Zo4esKvcbCYVXGjmJUz3LPhatvfq60Z51vCt9Ulx1sV22jRWoCFinGWg_6AENYvJctI3xHoS45yll0rgm3X8HZichgm_8KXjqbXC-S1gEvJUTmmCpLhqerN4IXYuGxx9-SEkaZEcUBPvzJDe8TNIXYQA5x0DF-ifs439yt8TfBOxbRsmpRlaC6LHH6TjP3YM_pPWUqCQ08hHEmlLFb6XGIG3BU6Huix2OkqtaLL3YC36SQm9PvdCJTpfteVGQcmV8yPhX_CUXLn2ELIk8HQp77MKxqg7aVhAqjVWDjZSj12vW8R5rW7AlkdohbHAMrIwHNBNKy4LTMX4tgXh6pPTdDRslijcAtmRTwEbvuWlttBScUhw_Vxcxx2DoI_5Y8E_l9je1j-pLZ6c3CSmhD4Q0Lc5mr_8gcq2SzZHLporny1WY2hDLzs7-5AY9vEmH-CjyshnkERodA_KPymW5byQio5gHT17HNveslVp4f2-UJhQiZix3Cwo0csrKEMCVgcHx6Hdrgq4-o745Sq051YqcGmTZAa7MBTroNAK4gWtEOGxshnWkEmXXqbtdLZ6iItbc4aD4IolzG1Z2NsfpSw79khyJKBSyJh_b_ZMOYsMkTfleW2DOBG3bXV9FO6hcHviE3-1ADIcDa3HbyafoffaXxd6vrowcaEH8Ia8hBaaHn3Br9EX1vVSQJuM0eui5hDcFAzdZzs4Pwh_nijqdUZJk52wrl6eExMlsRLaLNSisUDqAcoKQ4a8Zo9SxIbh3551iv4H1EUOluGox5E7JdYP1YAi5CwKgw=w1729-h856-s-no-gm?authuser=0)
 
 ## 14：https://www.monkeyaitools.com/
 
@@ -179,7 +180,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 **提交地址**：https://www.monkeyaitools.com/submit-tool
 
-![image-20231225113507017](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225113507017.png)
+![monkeyaitools](https://lh3.googleusercontent.com/pw/ABLVV84xtwpPhn3Fe9J_NxsNIyFYeF8CptJ2HCziEPXmNRXFWDRpxOWElSLiXNqg_Uq7UIoHj3nsyzbq94FMBr7iXWKa9VkQ5K75xQST1EdY3x09iZq7yc2Nr3pHEqogY2VKGcP2-VhImHYjRuuWTDynEy47XIX69oYPvZxAafQn1nW0hc8nqAznhoY5SaI8RJA_dZz1adty0ON2WDkjuAv50PTb0RliFnHBKjmcM3z7p4djftqr4tNM7ZyFFWxsr_fNJw7nKKP7bwEmk78EH0OYncjNTwG-Pgo0rSXSBkFbYr2dGZYctNChzHJ9QRG8jUts51_70gP67ChcIwL6QoLO3Vn_GpWO-uTSPRF4c37LCSVMUUIfR9YzSty1XH-6d_dppg26upRhmwTQd6sEQZpZ0tJ3e2Zt7qcxeWpX-JrhG-P6Uduxbh66--JMVi4KeviVr4yADyVjsQYiV1ke0fcgMPQPjJX8GCP7Z9uFTitqziq3lCXtOeersWoEMIg5xYF7beOGc7SxuxfQwqCfrl8ndcRvm7P5r7lYPrut8aKsLv1xGbEWsXEg1RGEBh6dvq1TWe0RHXl0k87dg1zNdcpCBtJJoe0p-j3Op16rmYuXMpy0WRg5bfaU4uBc2YZ6Wno28BFn4uszmtN8mPNWj0K7puyB39tRKgT85CuBX4CoqTUmwFdW91P2N4lkNz0TUTnq1Yl0xIytoVX68Mlggd7pocY7QRIwA2yaCy3lP_mmaRTMf3ABpszQd3vYaiplIBQCEAZcEYjLZkN14aO0qN9SfLe5DDT0EDhbgjtu5MN3xgORIBINEp7gXVnuiuO6-k_nO1YeqkSLAGoEka_VtbcufOOvHSA9B1VuVJShvMjBeI7KWZonSJjXlf0wooit5yWnubJ3hA=w1515-h903-s-no-gm?authuser=0)
 
 
 
@@ -191,7 +192,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 **提交地址**：https://aigclist.com/contribute
 
-![image-20231225131231721](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225131231721.png)
+![aigc便利店](https://lh3.googleusercontent.com/pw/ABLVV85MZtzBCUtii9x6wfQ046aQi9h8M6FKU2bH4gvvXq6TVWBVbP-3H1SUk6nrjL9bDNR2XQbmPD8932B6oDyDxN5R91kiH9KmQTvi06mx0XvKe6m4BXW1tAGyhzaRmOLjCODYut7DvbWpw_LTAl7m0RPaPNwwfcuoXHcaxC92pUXIrFoZ_Ma3gSOMFSJAM9OlXCdbZFrk6_Y1hHgciuDajJqjIsB443weNTvOSLn0eQNnbFqOfyeH27M3YQm7-Pi2ADEeoZV1SqOOzrfQ-BsYwVVlfOEfFGoiJvndSSCuSI-9SqJpIZHlAdCFi8GLAwdeT5TRp_JdmKGkJ_QuPf5UlKZA7DLYtHk3RbcFGo8DlfTRiyFUE4Fx0BjB33oMP-KWvuViyMwJsmL5YcuVcHLNdAAD7iPshMQmqtt8lnf--HfaTazuWTq6nTP1bmpJfmN1DVQCvN4ymIwQq1VJyqnwDq0hqAC0XHiD14fyWIuLFVtGE5d5xbSJLnoN9trM1QQ68dBYYpmf3rGuPidSF3SKprukFr3bkxD81i5MqZdthbKQKxXaX8bauGd4PAb1_dzfSc4HxFwOn6vGIq290kxoTHkS2fRNLfMnKXawtn0693PqMir0zUay7PhXylSCmzDTHFh-7R8NToFFkksE1WOwlhdMGeUV4AZtXnk4WZ36AJ8PFr4fGe3hbD3DqIrE5EUsEvhjjroZ1neArxhRQ2dCMyDWJyYB44uNXmQUoW3AnKHwCG7HMzkMOs29OwMSlSV_j6i_VqSTPiV6Le0bj23y-yg-LyQKYPZKvZGEohrZ1044V3ann-1zmQhSAXatzIcsYRxGVDh_Uw-VkHPsXOJfVtSVYJF1Vdn4cbWUb5sAMpZ9wlpr6ryz3kPXBxmvBPbVnRNeuQ=w1893-h868-s-no-gm?authuser=0)
 
 
 
@@ -201,5 +202,5 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 **网址**：https://www.aigctoolkit.com/
 
-![image-20231225131643127](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225131643127.png)
+![aigctoolkit](https://lh3.googleusercontent.com/pw/ABLVV85prKTwjJWzxraKJ-0L4GjRereFhpPWWSOainc_M2jsmDgkLL3Oy8-ESisa4cstJJRC9lN2ko5DVbTrZcgFCKCVbYiVqFY06lWQpEqVSJ13RINQMj1b8SqQYcJjsBQJM7s3fcxSuM_-Jwu131hpBRxWRjr2ckdEgpZ-6OkziB3cX9zvK4n3_5tY-m6fF_ZApPQHWu3tSRZiZsJMAX9qojM1KpPfKlNR21hRh4pBFs4ufFv9Zy2GCBBC6u6sOqdrLik4WyY7fb9ZD2pLepgVX8zLCRg7QKd1bf1ixrCSnE0FetRv59j2WC27yLBjUCWh2lvXeI6PQKQ_imL3EAOMqTClub8loLryq9OwYKTuOZLMGbRy0-uHBPRpWM4uvijSHRZBDXw7dmjSNqPfx3hgC8g7E0SHBGAnbY5mcbUIHcSqlKTG0OlZwd8ItYfEBx9Fd4RUDC_uWCo60DslU0SX3MyizYs7Tl7lJ83ktPAc-3tYnKUiI5GpK-Pkg9ltMNmScC1YM4HHUyoZFYzX-fDuXaLMaUFuoN0Wz1ATCOvTYTl4SSkMDVZFQ0WaMB6cZmDyDaSLGZDA5cayEAQK_XaUh1QXwQ3jLPPxVgdHFITHKPoh9OelVJN5_Ls8eZIDUkrH9TbB76enyBL4Io4j-34VJ4RAIrkCnE2rYNnmYBWi135KIfVNJO5hYI4z0WVmpLVbgQvpG2b0Wecbm3SD_434-0VBVlLm58DNpwi4MswkOl1njUoXkMOkN78UqH98qkc16RYfLX_3RqDxczIOKKj22Y9q-xeTnVYRGjN4zKpJc75Sv6qniebKLj8cH7wLMh5ootjetuhs2Cebz6GfnA3zuDyhJdW7R8eRFjBao8f5Y3YTDyYYN-1SilmfYV13HZxTaORdJQ=w1857-h863-s-no-gm?authuser=0)
 

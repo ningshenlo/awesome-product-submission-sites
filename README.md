@@ -58,7 +58,110 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 
 
-## 4：https://theresanaiforthat.com/
+
+
+
+
+## 4：https://aitoolhunt.com/
+
+简介：AI导航站。 免费提交。月访问量60万左右。
+
+提交地址：https://aitoolhunt.com/addTool
+
+![aitoolhunt](https://lh3.googleusercontent.com/pw/ABLVV87dVYAJTwGUNFdGk2Q2MbtGHL0nsbJdBR3SDzLJrlcuxngQauWGBnPJaUwrScBXnk22amHrFsw9RyaJHw9bv2jtdI7unZXHdrk3ZjdJcCiMUzkARhPrcVu_ifbbEnXHCrQ7WAIPrEkyBsjF3-LS1k3oYFYltyhcveAX2gCUuCxf7BzaRNVuUXPUWFoT6tkudcS-d52cEmDwbWEuXqQNGVxHUSx7-KdTIw5z3Zkzrr7NbzvLnQuKDAZhRY-omV2upZVywpn83vaIlxY-7AP5mfZy1LFBW3tbKWdxWTR9aQQg3RpfRDv8ZA5XECGjmqS0bRcPj-jBok114jJ2vJJjAlzXJiwwYtFhM7qRpD_hFOevgwiIiFU7ZH45uA5duWxWjixhPUmYzNGpeWXYPmrT8fB6fVRHr-DOY6ap3MCZ7dtGZ2eYryafX6ugs87CpZyiBt4WFma17Tn45kRwA5908l5Z4WbkVWosr_T_h7JUTay6j59V3VxTerztzIX3syrD-Exolaz43qzbB7NULHtuA8_QjiLtb3s9gfDnIC7ZKizdQ_sR074-DAQAfHDossNn8RinGixxoB0wsFuN2E0GQEJX14nfNIhHlJ8atAagNSsfRjVPxovHdvi_BuxbYzVYeTrvnYsGkVCOL5MKkcIE8GEK0rfiixapx7lh2brfG9h2kTufFefNx7bGU4nqhb7UzA3bQknuAfILVs53Ek4bPL9SLccIPLtTBdbB1YJcuh2bdvIz-9naasum4HXAdF10fqU5ylFOtSo5Tma7uZrP2neXHABH7rWpa1PY2ppUl8brkRBucid40NYSfpw9LjO4B6WaNPSU2c9UvV0e67cgxVvh7AouLb-nkLWjX7O7F-UUSK7vNBBDTz-UoinprsP83LSTig=w1899-h904-s-no-gm?authuser=0)
+
+
+
+
+
+
+## 5：https://whattheai.tech/
+
+**简介**：AI导航站，月访问量5w左右，可以免费提交。
+
+**提交地址**：https://whattheai.tech/add-post/
+
+![whattheai](https://lh3.googleusercontent.com/pw/ABLVV86BkdxorsToDBA2yqx3idKneCC1mput8sCFCbO4G7Helt-nRrtFwmYbB4hNxp18B_HGcZeVDAyW4x1r0zoycCqN2EUK7wXf4wPv6QnJlhJWfkXGa9mOinRO9w0tMFQjGMxEC9NFCVCrgUNhYPlb6iuDhqyD_r9TDADiOhxvIdweTPJKK-vHNIuedCjYbGgaKwLAeLtM05L7iijOi6uurUdNH3AqffPR8mhof15GJB04WvScFgdwkPp-YjuaEdkKoITS2IEGasUWJejJKy9wMFJbsMsZGdX-Tw2hnhhb9XegViu2YfIxmeUMkFxFecsQ-n8ERNWImWfTwuABfRHrHJziBn2PNPGpV-7oschYNZzXaykbUqvvuf_axPYa3nA9uhhy0yYNdsoyMzANUtIQC4Uf2l3EXcjoFqM01yU7apyODV2dnoSuC07Ef4orOZbs801Ff0BwxeiaxbQAKACyK-_RfCHxG3KLePLZ1DcLkFfVSxyOCbvKarcT9LWX43M3D01bAyxlSH44E78eviG9JEqO3SdCxRK5m-CePu2n1_P08jqautuhgLYwUDSKYf1Z1j7a5226Ert6Pqp8nQL8MbquNLTJFY4syZ6kCM7AgVTb4I3sCjUm82Kz-fp4JKUaVO7dpSYEFSyrDnd5tQ30_c7vxufnhXRuGK_HSQj7VKxzJPN0r6prDKtpR-MmffuU7LplMbeZdtNkM-_Y8rc2DCRWLwfPogGx5O-QXt102JCR4zoFFwmAUYaLS1ZOHG_vZtpWebDosMiwreAINy6jwVyKCrxmX4ayHdbcNKB-G8OETP8KuSa6AnZtxP8flyP0eJ34slSoRGbadCP8ETMSW6UWKj0yrV8uI4AbMCNY4SViZnijs7GuSnrTXNMRScbC5gXijw=w1672-h844-s-no-gm?authuser=0)
+
+## 6：https://www.advanced-innovation.io/
+
+**简介**：AI导航站，月访问量3W左右，可以免费提交。
+
+**提交地址**：https://www.advanced-innovation.io/ki-tool-einreichen
+
+
+
+![advanced-innovation]([https://photos.fife.usercontent.google.com/pw/ABLVV86aRrS7fLeh2eoaqB84Ffm2YRs6zalK--judHKFQyYBnEx_e-bG0x33=w1604-h871-s-no-gm?authuser=0](https://lh3.googleusercontent.com/pw/ABLVV86UIbZPMjnjemtSDgAlpV6B2YRNWWSKzu-f_cTcYfzaIZk1bdkAQx5wvWu-DilPPl7RrOXWLYMj-dHbUZoBB5o25PEzMdJjB6FBUyXeUb9dx2rrP6PwQZUUHHUsHg8S_rBBbK-KHW0QhnmXQkrWZQ-eoVnSQVI94FB6LWgTrOlJOrYDDvPBsvXs3fYoM1wPhA0n_5MzdWVT7vykrNpInYBb5qR0JIGYDHChk9CJJ8VkZ4lUuY1in1kSLWHB5KHP9l4XARykSuseKd1e4l_WoA61NcNZ8KF5JNwEhvea1dtTIWXVwCqx_1u97ggv15HzBu0VQZAF4rEvM4m54_Ib0Z3HVGEKk2x3LA67w5nHcUxBsH23FO0Opmj5q4D5ZrPeQY6jRIsasIZNL0IY_SI6aVn2M3Cs7DMB-JPirlGyUw8uJYYtvnlVWjkQibHh_1RahpTo9EZl0znp399umaVh2i_u8OiqZnPRlwF6nDcxRuC75SWoZct8L7yH4nKcfpw6JNbl4SR8awZ4O1akvXpc9Bp5i-J5pXe9rYXIWkxXajye8Pw_4de6aoemxTDGAtnjF-maiJUfACOWZIh77CoY0L8N8ZX1fbe-Visswnx2lQiahMXRg4NZJnDQTwG72zDCQWpBy3caSts6VoJMRz4sRfY4ExGFD8SzujY6o6V6jsUTHkp64TRvjdY4vlDa5xDxbR-lYuY5FZzUeEhTVLxBcPDEVNepXZM2Dgz0Ds15WOfgGTiimJwEwDNKKgZGNVcRYKrcd-jGk_SAHAvIIPy4gbYY4AwJVzOIGL7j7VsoqKlXHTS4gPix4Z5ekq9Ehasq6z087fE7cYu2o-zoXXXbvMMyBD7JdNHta5r9k3wllGyTC4XxXTmNi0VQhY7wJ8eoHsTXTw=w1604-h871-s-no-gm?authuser=0))
+
+
+
+## 7：https://ai-hunter.io/
+
+**简介**：AI导航站，月访问量5w左右。可以免费提交（也可以付费，更快通过审核）
+
+**提交地址**：https://ai-hunter.io/submit-ai-tool/
+
+![aihunter](https://lh3.googleusercontent.com/pw/ABLVV87_MubMFkqqDQP0SGLf1zQFY6ZdHrtzO5V_dyWWU4Q2gF84AW6UUeK6re1UFFF3EzSnlA3NCPcUGHviiqDQsvqJCMYQiCDPXJjFjWUYPXM-2eTx0GFOz7wOo-KKex-O18ucqOVkykqiphUGe1oVM5ZiCruheaZcb8T_xgK9CB0-wStmWlNlI3h6Ob3RcWEXYJD3Y6LXEu5EiwJUPDBPEJZfospxw-wTKL8W2JBTT36HmKjdqYEc-2efx4eayFlFF4CAmUydlMbeQZQBDUfjPASEv0-yzIfmgj1lMXtG-URKWO52bx_t1xgDKfIBzcMCBYGTfd9_IOHbBzyjmjCf4BhP6_1FOy5KnioxZvgnoCNIcStv-Gz2ZVduFcvs3KicbgSuwEe69TfPpF0bO50klbW_qgV3mW2nTwEHimMmYac541rMf4a7j97VlUWmpk3CD7uYiSRBe4ISb0UD4WZLoDCDb09vuqjtk3bz5v0Qrg_uFuLZ2WYK8AWXAJmHcQO4sJTyaJ4-PWq88gT44jFE-Yak4dd43Sei7yOGkHaBfoPgjUD06GWVg7jPW3Wgg83m964xSBOJPCXmgRiYeOI_AgDl6dbe5J99JDNjo8KSLWXCjo3bvKiJBAmsLvueEJ72RR1PfwK0iAeQ6VrQY5vK4J822akliWlD_Ltp7RnfQ8-r_YObL69nXFFDBcL-4bsP-K3CCXlXTlIBsijp89ZAAa8lrlLEWwUigXFsArrm4UNhtvw28f5R8KVsPWglTNANJX5ujdIlUJnpE4QDJG0gnmsIH4ox3BZ1C6rehWXloz4ir_G8w_nCUzerDEzxTbSCM3Zl_5xefSzFJGbJgR8StHjiMDTjRARjMjlAFOd5IQcwf0F5lg8MbfOrg5F2JQqLSGpOSg=w1845-h899-s-no-gm?authuser=0)
+
+
+
+## 8 ：https://www.aibucket.io/
+
+**简介**：AI导航站，月访问量5万左右，可以免费提交。
+
+**提交地址**：https://www.aibucket.io/tool-submission
+
+
+
+![aibucket](https://lh3.googleusercontent.com/pw/ABLVV86EbQV8TzMUtj2Tp9LJV_kegD3tqYw_OQmvdTR87nMppA8daMrp0hW5MX7jY9e32aMFJCeN2kIq6Q4dWjli7zlT2wl1NbEHxHaZXF-exFfKPq3CuYn8XO8fW8JhYogG_Kniy61-f8bfxcQWkqYUo5OmDGsDkmFKH0X_DQ8Tz0c2AP3VkbYuVDkSrpEkAL9VIZUU5vWPqC6PNHpGYWFcM9aNS7d3TolWIE-ubph26lnN7YLEo92aAhOwCatyPizHYIqqnF9KycWKqWrpqXpIp-aQIDFyb0cVfn3MODQgEzJf9TBkjKJB057GMgeKHJ9SivJU7zKdyRolTQwlAZHFzlY1qUY7rPo6lfkJJPWn50Rn4hCj_e5es3DN_bFrB4z7Q2ZDYQWEtwCFhX8NpciJwrnXae2PdAKKnglifkvT-91uI55q6ZHUChIlVH6Dp2Hab4kF-4nOBrZiAP0HJYY8xAOIhm23L1WSZ64Ctu5ysnuAFpD7_uZM9CdOQMIirq5WEyEWJs4FOQgvNh6dOuNzjzZnwRnoveOJvd0CGbgozj6y9N5Dbj78TtDGjkpgFdF8j7maSFlDJ7RqXs11rnQ9FnUKkxsGYCb3zU3-6YhucwNK9MNLdtTqzVo2UWNNiJXudPYGzOLg2wVvGOUwsOXEV50-AIF8UdYTlCmtYxreJXOC1dPgrC5e2H4B6mTupMhs5x4fBzYyFjFyo6lL-hYVz6u6T6yOO3p8T_VuHJtmWmN0q1VdcGpX725IhH5dmHjvtFyNMAl-tusT-GVu3RjQEvdx5neplgFWB67I01mNrhbtni4igTzaQBtGW2W2t8IA4FYGKvht_wH7eV8XV0TP0YZvGM0tqK85543HvaM51mEXcsDKyKaG05ebTC_vEzkJ2qqWTg=w1911-h869-s-no-gm?authuser=0)
+
+## 9：https://www.ainave.com/
+
+**简介**：ai导航站，月访问量3W左右，可以免费提交。
+
+**提交地址**：https://docs.google.com/forms/d/e/1FAIpQLScPE8mwsLOTUc8bXcHkfZxn9aVmxVeQEOC16zxXZYU43ZzuaA/viewform
+
+
+
+另外，这个站是从product hunt上采集的一些ai产品，如果你的产品已经发布在product hunt，很有可能会被该站收录。
+
+![ainave](https://lh3.googleusercontent.com/pw/ABLVV846LWDRtrcWluzrHGrgqHEYnGHOIaFAFpsG64gu3ZFXHq7uYmkGN_MNrzV4Y9ud8J7c0kfPrnHmPPkm4hDijl4Qe3Niip7AM54hHdm2Zo4esKvcbCYVXGjmJUz3LPhatvfq60Z51vCt9Ulx1sV22jRWoCFinGWg_6AENYvJctI3xHoS45yll0rgm3X8HZichgm_8KXjqbXC-S1gEvJUTmmCpLhqerN4IXYuGxx9-SEkaZEcUBPvzJDe8TNIXYQA5x0DF-ifs439yt8TfBOxbRsmpRlaC6LHH6TjP3YM_pPWUqCQ08hHEmlLFb6XGIG3BU6Huix2OkqtaLL3YC36SQm9PvdCJTpfteVGQcmV8yPhX_CUXLn2ELIk8HQp77MKxqg7aVhAqjVWDjZSj12vW8R5rW7AlkdohbHAMrIwHNBNKy4LTMX4tgXh6pPTdDRslijcAtmRTwEbvuWlttBScUhw_Vxcxx2DoI_5Y8E_l9je1j-pLZ6c3CSmhD4Q0Lc5mr_8gcq2SzZHLporny1WY2hDLzs7-5AY9vEmH-CjyshnkERodA_KPymW5byQio5gHT17HNveslVp4f2-UJhQiZix3Cwo0csrKEMCVgcHx6Hdrgq4-o745Sq051YqcGmTZAa7MBTroNAK4gWtEOGxshnWkEmXXqbtdLZ6iItbc4aD4IolzG1Z2NsfpSw79khyJKBSyJh_b_ZMOYsMkTfleW2DOBG3bXV9FO6hcHviE3-1ADIcDa3HbyafoffaXxd6vrowcaEH8Ia8hBaaHn3Br9EX1vVSQJuM0eui5hDcFAzdZzs4Pwh_nijqdUZJk52wrl6eExMlsRLaLNSisUDqAcoKQ4a8Zo9SxIbh3551iv4H1EUOluGox5E7JdYP1YAi5CwKgw=w1729-h856-s-no-gm?authuser=0)
+
+## 10：https://www.monkeyaitools.com/
+
+**简介**：AI导航站，月访问量3w左右。可以免费提交。
+
+**提交地址**：https://www.monkeyaitools.com/submit-tool
+
+![monkeyaitools](https://lh3.googleusercontent.com/pw/ABLVV84xtwpPhn3Fe9J_NxsNIyFYeF8CptJ2HCziEPXmNRXFWDRpxOWElSLiXNqg_Uq7UIoHj3nsyzbq94FMBr7iXWKa9VkQ5K75xQST1EdY3x09iZq7yc2Nr3pHEqogY2VKGcP2-VhImHYjRuuWTDynEy47XIX69oYPvZxAafQn1nW0hc8nqAznhoY5SaI8RJA_dZz1adty0ON2WDkjuAv50PTb0RliFnHBKjmcM3z7p4djftqr4tNM7ZyFFWxsr_fNJw7nKKP7bwEmk78EH0OYncjNTwG-Pgo0rSXSBkFbYr2dGZYctNChzHJ9QRG8jUts51_70gP67ChcIwL6QoLO3Vn_GpWO-uTSPRF4c37LCSVMUUIfR9YzSty1XH-6d_dppg26upRhmwTQd6sEQZpZ0tJ3e2Zt7qcxeWpX-JrhG-P6Uduxbh66--JMVi4KeviVr4yADyVjsQYiV1ke0fcgMPQPjJX8GCP7Z9uFTitqziq3lCXtOeersWoEMIg5xYF7beOGc7SxuxfQwqCfrl8ndcRvm7P5r7lYPrut8aKsLv1xGbEWsXEg1RGEBh6dvq1TWe0RHXl0k87dg1zNdcpCBtJJoe0p-j3Op16rmYuXMpy0WRg5bfaU4uBc2YZ6Wno28BFn4uszmtN8mPNWj0K7puyB39tRKgT85CuBX4CoqTUmwFdW91P2N4lkNz0TUTnq1Yl0xIytoVX68Mlggd7pocY7QRIwA2yaCy3lP_mmaRTMf3ABpszQd3vYaiplIBQCEAZcEYjLZkN14aO0qN9SfLe5DDT0EDhbgjtu5MN3xgORIBINEp7gXVnuiuO6-k_nO1YeqkSLAGoEka_VtbcufOOvHSA9B1VuVJShvMjBeI7KWZonSJjXlf0wooit5yWnubJ3hA=w1515-h903-s-no-gm?authuser=0)
+
+
+
+## 11：AIGC便利店
+
+**简介**：AI导航网站，月访问量2w左右
+
+**网址**：https://aigclist.com
+
+**提交地址**：https://aigclist.com/contribute
+
+![aigc便利店](https://lh3.googleusercontent.com/pw/ABLVV85MZtzBCUtii9x6wfQ046aQi9h8M6FKU2bH4gvvXq6TVWBVbP-3H1SUk6nrjL9bDNR2XQbmPD8932B6oDyDxN5R91kiH9KmQTvi06mx0XvKe6m4BXW1tAGyhzaRmOLjCODYut7DvbWpw_LTAl7m0RPaPNwwfcuoXHcaxC92pUXIrFoZ_Ma3gSOMFSJAM9OlXCdbZFrk6_Y1hHgciuDajJqjIsB443weNTvOSLn0eQNnbFqOfyeH27M3YQm7-Pi2ADEeoZV1SqOOzrfQ-BsYwVVlfOEfFGoiJvndSSCuSI-9SqJpIZHlAdCFi8GLAwdeT5TRp_JdmKGkJ_QuPf5UlKZA7DLYtHk3RbcFGo8DlfTRiyFUE4Fx0BjB33oMP-KWvuViyMwJsmL5YcuVcHLNdAAD7iPshMQmqtt8lnf--HfaTazuWTq6nTP1bmpJfmN1DVQCvN4ymIwQq1VJyqnwDq0hqAC0XHiD14fyWIuLFVtGE5d5xbSJLnoN9trM1QQ68dBYYpmf3rGuPidSF3SKprukFr3bkxD81i5MqZdthbKQKxXaX8bauGd4PAb1_dzfSc4HxFwOn6vGIq290kxoTHkS2fRNLfMnKXawtn0693PqMir0zUay7PhXylSCmzDTHFh-7R8NToFFkksE1WOwlhdMGeUV4AZtXnk4WZ36AJ8PFr4fGe3hbD3DqIrE5EUsEvhjjroZ1neArxhRQ2dCMyDWJyYB44uNXmQUoW3AnKHwCG7HMzkMOs29OwMSlSV_j6i_VqSTPiV6Le0bj23y-yg-LyQKYPZKvZGEohrZ1044V3ann-1zmQhSAXatzIcsYRxGVDh_Uw-VkHPsXOJfVtSVYJF1Vdn4cbWUb5sAMpZ9wlpr6ryz3kPXBxmvBPbVnRNeuQ=w1893-h868-s-no-gm?authuser=0)
+
+
+
+## 12：Aigc Toolkit
+
+**简介**：AI 导航网站，月访问量2w左右，可以免费提交。
+
+**网址**：https://www.aigctoolkit.com/
+
+![aigctoolkit](https://lh3.googleusercontent.com/pw/ABLVV85prKTwjJWzxraKJ-0L4GjRereFhpPWWSOainc_M2jsmDgkLL3Oy8-ESisa4cstJJRC9lN2ko5DVbTrZcgFCKCVbYiVqFY06lWQpEqVSJ13RINQMj1b8SqQYcJjsBQJM7s3fcxSuM_-Jwu131hpBRxWRjr2ckdEgpZ-6OkziB3cX9zvK4n3_5tY-m6fF_ZApPQHWu3tSRZiZsJMAX9qojM1KpPfKlNR21hRh4pBFs4ufFv9Zy2GCBBC6u6sOqdrLik4WyY7fb9ZD2pLepgVX8zLCRg7QKd1bf1ixrCSnE0FetRv59j2WC27yLBjUCWh2lvXeI6PQKQ_imL3EAOMqTClub8loLryq9OwYKTuOZLMGbRy0-uHBPRpWM4uvijSHRZBDXw7dmjSNqPfx3hgC8g7E0SHBGAnbY5mcbUIHcSqlKTG0OlZwd8ItYfEBx9Fd4RUDC_uWCo60DslU0SX3MyizYs7Tl7lJ83ktPAc-3tYnKUiI5GpK-Pkg9ltMNmScC1YM4HHUyoZFYzX-fDuXaLMaUFuoN0Wz1ATCOvTYTl4SSkMDVZFQ0WaMB6cZmDyDaSLGZDA5cayEAQK_XaUh1QXwQ3jLPPxVgdHFITHKPoh9OelVJN5_Ls8eZIDUkrH9TbB76enyBL4Io4j-34VJ4RAIrkCnE2rYNnmYBWi135KIfVNJO5hYI4z0WVmpLVbgQvpG2b0Wecbm3SD_434-0VBVlLm58DNpwi4MswkOl1njUoXkMOkN78UqH98qkc16RYfLX_3RqDxczIOKKj22Y9q-xeTnVYRGjN4zKpJc75Sv6qniebKLj8cH7wLMh5ootjetuhs2Cebz6GfnA3zuDyhJdW7R8eRFjBao8f5Y3YTDyYYN-1SilmfYV13HZxTaORdJQ=w1857-h863-s-no-gm?authuser=0)
+
+# 付费提交
+
+不少大流量的AI导航站都有付费收录的服务，可以置顶曝光。如果你的产品有收费服务，可以尝试付费渠道，性价比还是很不错的，不要排斥付费。付费才可以快速验证自己做的事情是否符合市场需求。
+
+## 1：https://theresanaiforthat.com/
 
 简介：AI导航站，月访问量400万。
 
@@ -72,11 +175,11 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 
 
-![theresanaiforthat](https://photos.fife.usercontent.google.com/pw/ABLVV84RiYc4OGKgbJT7nKhCfxADnSoWc0A75A4IHfJnCYeKtLd5cR9kCAcO=w1866-h891-s-no-gm?authuser=0)
+![theresanaiforthat](https://lh3.googleusercontent.com/pw/ABLVV84TYJ9yJlUXS-htu-eHfVEjId3WHX1x6KdWOD7hvIEBwcOEkKYyJdWpvX5pLWirfHDIxVST_G7rg5xw86KCowgtsqDoj2p-lNjLg0NOurnACIclAmPa33P0vSBV_WaBbRRV3moqBosBtet_kEgNbcw_W6UeAtEzQyAgSO_OKiK4FmztmKCDFuHvfQL1QHIrBNnTx4DaJ8iLgwikRgJ3qUOAOhMVqFMnFlO7HXhy-rDVoxNIepzwa-MwbAZy5xtoXWNJoa_vto8ji997rV1p3Ows9DN09ZZPOG7dwI716hWvQGQHjPtOEO81xDg1kcD6y1T1B90y16lcPRZuGwpWPMDx_x4fMcQeWpLT34UrFt3x5G3b3MtPhPfYIqIT_gRQQTWCFeSiYJdLxVJWWGTKaq8525tXF_g5ior0i7WbpRRsKjl6gn2YRNuFZnpEoQn3mJzj7XjpPYSyAP2yfri6XlmGaH4dcNOUF_ooZ9i7CKpID7GHOfdz0V1jkat9oKVCunkhL92r2FgMmMDMoqMozCYfjOTw4kw8Fze1Ji029xEetTQ_QgZuL0SRgEMXAonv2qgg-i798WncOUOi53McsCWIYnXAin3ZWA12Qo9xswhC352O424PtClsll1c0KZAZKBfc16vl6Nq0L5wH6wFcaBuwzl6PdTwzTqIHGL3Lz9OlU66CL_KpcqydGO1IqcsIUWu2FuVFUKqV8U_Ya5w7CCprXaIyZDb9itrPSghrUNXf3eDkS_MeGUlfmFlPqND7TIe4uOpdttwghnOqSQfNafLqZmIMnXDN6AIVa01txZ_0ooAtvbtAJOA_losJmpKnfHzQQAG5IexJfJv4A5rkWTkf0owwzRR1ojKPWoPA-1lpQlLPHDUfAoX1Di-16LeHSGC_A=w1866-h891-s-no-gm?authuser=0)
 
 
 
-## 5：https://topai.tools/
+## 2：https://topai.tools/
 
 简介：AI导航站，月访问量300万左右。
 
@@ -84,11 +187,11 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 收费情况：一周199美元。如果产品有收费服务，可以考虑上付费。
 
-![topai](https://photos.fife.usercontent.google.com/pw/ABLVV87zG3LyaME376lXwSOd-6CY3aN5rQhicEgLV1rP1hbw-A-LQ1hbJX08=w1893-h859-s-no-gm?authuser=0)
+![topai](https://lh3.googleusercontent.com/pw/ABLVV84lGH2qlDadHfGEhWwY1QncVRLaecytljyeBzMlid4EB-awkOsI40QqEhz_VFdMV8mRL5GhjYdbqCSc6VIdrITuq2QS9TwgS4QVp-Ncp7eS9VSEFqFasdI7pn7HqOejRq8sl2EzIPrJa-BrtxGB4-03rrRG04QdbzdN-sRjupTYvuBcZRanAb2yu-XvOfHM5l094J9hP_xNFWaVGejwydanW4qshY_Ip1Ja6Py8m_NyL_KJ0F16VyG839Y_U-l8jv0fZWQCOBY-0h3ipOjFDXYacyK_JBSXGnzyVjoDWPp3TRJmcCijkXRBf_xP9zZ1QW9y9RnnGEuta-hkV8IYJg4Eu9TLc0swpTlrhLK68GAyWtIk0Z_eTpVeixNSP4efzkPuMraDnkIZX_5hfw4yf1TZY96PJAVnr9zcXoOnjIMxcA2FQjWBvNhTLNk7JGMbQE7b6elmzM2QmEaa6JvPbKbRPVm2xal4X19RNJmDOu3HMaP0_t3qc8zLCIZVbywzigYckbkS18NhAti55-jHLVu-8wIyA3TJynvboW_9BP-Rl3VkNK8JXyyv5cHM3eTGcvZY0wK7CL0HHOkob9ckrZI_hrzc3ZOAwhnbh69JoYvMSLWKxAMBPeLOM5b-ZUXVgBo9vMt1BqfGoq9NDGm-AdBzeuFSRn_1dDv6Tg2_By64dtNy_hekl8IJPoFzdneCS_iNr76WvWaNV1OceMst1QpylehxxHpKeWb-YFY4TTrnbZaTDNHLfYmoNWe-qP8SwM0AbN9DtOsCYeLDvc5hkrxKCNLyXkQwO__trplsc8eDXVbpvfBD_Z7NLXR8OIYY-IOF5S3WvCeGNShgHxAtTtMZE7D5LO_6aZjfOfGtJcR00ljtD6-QZHlo_LngnIjH1sgGPQ=w1893-h859-s-no-gm?authuser=0)
 
 
 
-## 6：https://www.toolify.ai/
+## 3：https://www.toolify.ai/
 
 简介：AI导航站。月访问量80万左右。
 
@@ -98,19 +201,7 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 
 ![toolify](https://lh3.googleusercontent.com/pw/ABLVV87CE4y0ayxONdNmVoJyG1e-f9OpyMRMechyVx_O17Vbl4CVRzdQk32O452lCLbvHZ_GHb-TXUwYOqsmLAiTCkT52QlhCOrynBKq_2yW2CynCW5Qzr7x6i3wEXz7UqId7nhPp4D-J0JoW1u66mOi7uVPNyQqRSzsV7LuM-DNU8N-w3na2x5BP31yccHC-OaQBQO85UlCdmva5q2CacrjT0jGeBoy2BueVSbZobL0SjmIdg_W0-BV_Dw2H23gsYHxIEfclkHsMRCrvPRpmu_s6Ai4OuFQADAkYffm2vnIciw_w6jqDzvzXgL63zqXZkxcAHtYuEkapnkZ3phC5lpA0X5mLbR6_JPsiDjnkhKxigxkNdhcd2GLt3jffXhCsEu0pYXbqP7HWMpBWhnYGr1MxwtVcIfxSJhsOaSxQuNnUeNngfNU3VgQboyqmLpGkd8BJCK6jkHYEB7XqSqJZo4WKdFqtjs7ArlqByYQfKZdgQo293O66JzeklpXAvOS5Fa15y5OKYmjz82anm78rkPEuTCHBmM-zCVTa6TB96yFO8Jv7LD4mYGYSr4nDvyFWvwuU3sEA3131WP4BpblkHPzWbUkOJOf4GXSTZkudFQHeiuw6gOl4naPvn93bERsbdh_5V_LbMldojN87aiRVluRQMZNhRYAEem8-gkkvA-1Tco3WV4eDaOi7uA7HHumYoCjrM4kgk4nz-4ee9rgIV_bz3G-chAAqHeHv2BcLmETmUft-ePcJTBXg_6xPAMSzDq2LMYezaaCm4-FhfCXZsAiiQ2-qCl85FGUYogKBSwEaQ3fWz_RcH3UtSw7kPIRRGDTD6bm8j3VuaZ18Yg5ziGGvumA2GZ90sHQsiyc6Z_988k8l3gMxk4-Af2qR1sJbZp1-qqBWw=w1884-h878-s-no-gm?authuser=0)
 
-
-
-## 7：https://aitoolhunt.com/
-
-简介：AI导航站。 免费提交。月访问量60万左右。
-
-提交地址：https://aitoolhunt.com/addTool
-
-![aitoolhunt](https://photos.fife.usercontent.google.com/pw/ABLVV86pTaI81-C13PKAQA6wpbd0rILN5XK-0cmf_0Ujp9-zURCubeq6p5uu=w1899-h904-s-no-gm?authuser=0)
-
-
-
-## 8：https://chatgptdemo.com/
+## 4：https://chatgptdemo.com/
 
 简介：AI导航站，月访问量12万左右。
 
@@ -119,88 +210,3 @@ product hunt 一定要用，如果你的产品做的不错，很容易引起媒�
 收费情况：赞助100美元，首页展示30天
 
 ![chatgptdemo](https://lh3.googleusercontent.com/pw/ABLVV84miVORK9AV3U1nO8eMKWsMKNZmedGX5npnMCVjzpJxj2zE8XWqH_15yFVZAFEIioKvWlwspp_JEe5_XJxhoiX9L22uz4TJzoz_Zl4LM3LQ9gLlSilF8Mv2ocyFZYPgSqusBsw3kIy1RoB3RiBuKnCc3nb-f3firmCmfcVRCNeql7g9ggjPIbDfV0Nt6Ng1ZUNqXYcX2Q2Z-iS4YqDSnUFq7GbjlstJ4Xse0TgB1tA62JmOdtmLIlsIbpORtB-IZS_gF3xyx3gsD1hYY_b6N_0Tgfz1fb4bfR81dTgrG-wxFs_ASm5Ea_-4cE4KdgmuQp0qOsWzFa-qNtOtGMM-2Lu6JUSyOjv8MqUiBUtibIUObBCahpkKYGY5o2McZovwV8g_gzS2rgtXOdVUPkAS_MemQOk-cXVyFA-ThvY00QhiuJPfFcTQIRo4woNiLQeZPQla2os6e9n026RMRiGoZNvtUjqVO8ZiTdg4-jocrAP7UQWI54hNeqagSYxMrQHz8aDWr5oNo7DMEFKuls540QM3QBsbZw0UOWxKAwQq34tNZhjdYrRXUyoxH0jo7ralAPt3viBTqd2bHi8HIPawY2OyoUKVAb8yae9HcnFuzQYCHXHkK5jd6jehGQ_hZoq1EKjOABVGjIUxQFAe9MKgytLITy0aFWfOxkC0d1kF4j3Ri81hBE_eNnDWxyQKCj4mchN0bJR0Fir5HzAx_8AZZ92m8_6mn4C_vDUo9WBV42O63uGHrpKtJvrutH6JgzfrFPXuT_YmtSSYrvq1MGj73e8Vnbn9ehAwOxGYsFgRMnbE3EbkJhRFg51ni2qciOwlU9MAujSdfj9fMJcoK0iYXGo0viqDJ_RuAZ6891beLtCztOdjswgyQ8twH0UwZpfgKFe07Q=w1889-h864-s-no-gm?authuser=0)
-
-
-
-## 9：https://whattheai.tech/
-
-**简介**：AI导航站，月访问量5w左右，可以免费提交。
-
-**提交地址**：https://whattheai.tech/add-post/
-
-![whattheai](https://lh3.googleusercontent.com/pw/ABLVV86BkdxorsToDBA2yqx3idKneCC1mput8sCFCbO4G7Helt-nRrtFwmYbB4hNxp18B_HGcZeVDAyW4x1r0zoycCqN2EUK7wXf4wPv6QnJlhJWfkXGa9mOinRO9w0tMFQjGMxEC9NFCVCrgUNhYPlb6iuDhqyD_r9TDADiOhxvIdweTPJKK-vHNIuedCjYbGgaKwLAeLtM05L7iijOi6uurUdNH3AqffPR8mhof15GJB04WvScFgdwkPp-YjuaEdkKoITS2IEGasUWJejJKy9wMFJbsMsZGdX-Tw2hnhhb9XegViu2YfIxmeUMkFxFecsQ-n8ERNWImWfTwuABfRHrHJziBn2PNPGpV-7oschYNZzXaykbUqvvuf_axPYa3nA9uhhy0yYNdsoyMzANUtIQC4Uf2l3EXcjoFqM01yU7apyODV2dnoSuC07Ef4orOZbs801Ff0BwxeiaxbQAKACyK-_RfCHxG3KLePLZ1DcLkFfVSxyOCbvKarcT9LWX43M3D01bAyxlSH44E78eviG9JEqO3SdCxRK5m-CePu2n1_P08jqautuhgLYwUDSKYf1Z1j7a5226Ert6Pqp8nQL8MbquNLTJFY4syZ6kCM7AgVTb4I3sCjUm82Kz-fp4JKUaVO7dpSYEFSyrDnd5tQ30_c7vxufnhXRuGK_HSQj7VKxzJPN0r6prDKtpR-MmffuU7LplMbeZdtNkM-_Y8rc2DCRWLwfPogGx5O-QXt102JCR4zoFFwmAUYaLS1ZOHG_vZtpWebDosMiwreAINy6jwVyKCrxmX4ayHdbcNKB-G8OETP8KuSa6AnZtxP8flyP0eJ34slSoRGbadCP8ETMSW6UWKj0yrV8uI4AbMCNY4SViZnijs7GuSnrTXNMRScbC5gXijw=w1672-h844-s-no-gm?authuser=0)
-
-## 10：https://www.advanced-innovation.io/
-
-**简介**：AI导航站，月访问量3W左右，可以免费提交。
-
-**提交地址**：https://www.advanced-innovation.io/ki-tool-einreichen
-
-
-
-![advanced-innovation](https://photos.fife.usercontent.google.com/pw/ABLVV86aRrS7fLeh2eoaqB84Ffm2YRs6zalK--judHKFQyYBnEx_e-bG0x33=w1604-h871-s-no-gm?authuser=0)
-
-
-
-## 11：https://ai-hunter.io/
-
-**简介**：AI导航站，月访问量5w左右。可以免费提交（也可以付费，更快通过审核）
-
-**提交地址**：https://ai-hunter.io/submit-ai-tool/
-
-![aihunter](https://lh3.googleusercontent.com/pw/ABLVV87_MubMFkqqDQP0SGLf1zQFY6ZdHrtzO5V_dyWWU4Q2gF84AW6UUeK6re1UFFF3EzSnlA3NCPcUGHviiqDQsvqJCMYQiCDPXJjFjWUYPXM-2eTx0GFOz7wOo-KKex-O18ucqOVkykqiphUGe1oVM5ZiCruheaZcb8T_xgK9CB0-wStmWlNlI3h6Ob3RcWEXYJD3Y6LXEu5EiwJUPDBPEJZfospxw-wTKL8W2JBTT36HmKjdqYEc-2efx4eayFlFF4CAmUydlMbeQZQBDUfjPASEv0-yzIfmgj1lMXtG-URKWO52bx_t1xgDKfIBzcMCBYGTfd9_IOHbBzyjmjCf4BhP6_1FOy5KnioxZvgnoCNIcStv-Gz2ZVduFcvs3KicbgSuwEe69TfPpF0bO50klbW_qgV3mW2nTwEHimMmYac541rMf4a7j97VlUWmpk3CD7uYiSRBe4ISb0UD4WZLoDCDb09vuqjtk3bz5v0Qrg_uFuLZ2WYK8AWXAJmHcQO4sJTyaJ4-PWq88gT44jFE-Yak4dd43Sei7yOGkHaBfoPgjUD06GWVg7jPW3Wgg83m964xSBOJPCXmgRiYeOI_AgDl6dbe5J99JDNjo8KSLWXCjo3bvKiJBAmsLvueEJ72RR1PfwK0iAeQ6VrQY5vK4J822akliWlD_Ltp7RnfQ8-r_YObL69nXFFDBcL-4bsP-K3CCXlXTlIBsijp89ZAAa8lrlLEWwUigXFsArrm4UNhtvw28f5R8KVsPWglTNANJX5ujdIlUJnpE4QDJG0gnmsIH4ox3BZ1C6rehWXloz4ir_G8w_nCUzerDEzxTbSCM3Zl_5xefSzFJGbJgR8StHjiMDTjRARjMjlAFOd5IQcwf0F5lg8MbfOrg5F2JQqLSGpOSg=w1845-h899-s-no-gm?authuser=0)
-
-
-
-## 12 ：https://www.aibucket.io/
-
-**简介**：AI导航站，月访问量5万左右，可以免费提交。
-
-**提交地址**：https://www.aibucket.io/tool-submission
-
-
-
-![aibucket]([C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20231225113007615.png](https://photos.fife.usercontent.google.com/pw/ABLVV84IYqD_HDJUVFmo46j10lCXME0QSQTxeeoTH21Ybiz0B5AcRRC0ww8J=w1911-h869-s-no-gm?authuser=0))
-
-## 13：https://www.ainave.com/
-
-**简介**：ai导航站，月访问量3W左右，可以免费提交。
-
-**提交地址**：https://docs.google.com/forms/d/e/1FAIpQLScPE8mwsLOTUc8bXcHkfZxn9aVmxVeQEOC16zxXZYU43ZzuaA/viewform
-
-
-
-另外，这个站是从product hunt上采集的一些ai产品，如果你的产品已经发布在product hunt，很有可能会被该站收录。
-
-![ainave](https://lh3.googleusercontent.com/pw/ABLVV846LWDRtrcWluzrHGrgqHEYnGHOIaFAFpsG64gu3ZFXHq7uYmkGN_MNrzV4Y9ud8J7c0kfPrnHmPPkm4hDijl4Qe3Niip7AM54hHdm2Zo4esKvcbCYVXGjmJUz3LPhatvfq60Z51vCt9Ulx1sV22jRWoCFinGWg_6AENYvJctI3xHoS45yll0rgm3X8HZichgm_8KXjqbXC-S1gEvJUTmmCpLhqerN4IXYuGxx9-SEkaZEcUBPvzJDe8TNIXYQA5x0DF-ifs439yt8TfBOxbRsmpRlaC6LHH6TjP3YM_pPWUqCQ08hHEmlLFb6XGIG3BU6Huix2OkqtaLL3YC36SQm9PvdCJTpfteVGQcmV8yPhX_CUXLn2ELIk8HQp77MKxqg7aVhAqjVWDjZSj12vW8R5rW7AlkdohbHAMrIwHNBNKy4LTMX4tgXh6pPTdDRslijcAtmRTwEbvuWlttBScUhw_Vxcxx2DoI_5Y8E_l9je1j-pLZ6c3CSmhD4Q0Lc5mr_8gcq2SzZHLporny1WY2hDLzs7-5AY9vEmH-CjyshnkERodA_KPymW5byQio5gHT17HNveslVp4f2-UJhQiZix3Cwo0csrKEMCVgcHx6Hdrgq4-o745Sq051YqcGmTZAa7MBTroNAK4gWtEOGxshnWkEmXXqbtdLZ6iItbc4aD4IolzG1Z2NsfpSw79khyJKBSyJh_b_ZMOYsMkTfleW2DOBG3bXV9FO6hcHviE3-1ADIcDa3HbyafoffaXxd6vrowcaEH8Ia8hBaaHn3Br9EX1vVSQJuM0eui5hDcFAzdZzs4Pwh_nijqdUZJk52wrl6eExMlsRLaLNSisUDqAcoKQ4a8Zo9SxIbh3551iv4H1EUOluGox5E7JdYP1YAi5CwKgw=w1729-h856-s-no-gm?authuser=0)
-
-## 14：https://www.monkeyaitools.com/
-
-**简介**：AI导航站，月访问量3w左右。可以免费提交。
-
-**提交地址**：https://www.monkeyaitools.com/submit-tool
-
-![monkeyaitools](https://lh3.googleusercontent.com/pw/ABLVV84xtwpPhn3Fe9J_NxsNIyFYeF8CptJ2HCziEPXmNRXFWDRpxOWElSLiXNqg_Uq7UIoHj3nsyzbq94FMBr7iXWKa9VkQ5K75xQST1EdY3x09iZq7yc2Nr3pHEqogY2VKGcP2-VhImHYjRuuWTDynEy47XIX69oYPvZxAafQn1nW0hc8nqAznhoY5SaI8RJA_dZz1adty0ON2WDkjuAv50PTb0RliFnHBKjmcM3z7p4djftqr4tNM7ZyFFWxsr_fNJw7nKKP7bwEmk78EH0OYncjNTwG-Pgo0rSXSBkFbYr2dGZYctNChzHJ9QRG8jUts51_70gP67ChcIwL6QoLO3Vn_GpWO-uTSPRF4c37LCSVMUUIfR9YzSty1XH-6d_dppg26upRhmwTQd6sEQZpZ0tJ3e2Zt7qcxeWpX-JrhG-P6Uduxbh66--JMVi4KeviVr4yADyVjsQYiV1ke0fcgMPQPjJX8GCP7Z9uFTitqziq3lCXtOeersWoEMIg5xYF7beOGc7SxuxfQwqCfrl8ndcRvm7P5r7lYPrut8aKsLv1xGbEWsXEg1RGEBh6dvq1TWe0RHXl0k87dg1zNdcpCBtJJoe0p-j3Op16rmYuXMpy0WRg5bfaU4uBc2YZ6Wno28BFn4uszmtN8mPNWj0K7puyB39tRKgT85CuBX4CoqTUmwFdW91P2N4lkNz0TUTnq1Yl0xIytoVX68Mlggd7pocY7QRIwA2yaCy3lP_mmaRTMf3ABpszQd3vYaiplIBQCEAZcEYjLZkN14aO0qN9SfLe5DDT0EDhbgjtu5MN3xgORIBINEp7gXVnuiuO6-k_nO1YeqkSLAGoEka_VtbcufOOvHSA9B1VuVJShvMjBeI7KWZonSJjXlf0wooit5yWnubJ3hA=w1515-h903-s-no-gm?authuser=0)
-
-
-
-## 15：AIGC便利店
-
-**简介**：AI导航网站，月访问量2w左右
-
-**网址**：https://aigclist.com
-
-**提交地址**：https://aigclist.com/contribute
-
-![aigc便利店](https://lh3.googleusercontent.com/pw/ABLVV85MZtzBCUtii9x6wfQ046aQi9h8M6FKU2bH4gvvXq6TVWBVbP-3H1SUk6nrjL9bDNR2XQbmPD8932B6oDyDxN5R91kiH9KmQTvi06mx0XvKe6m4BXW1tAGyhzaRmOLjCODYut7DvbWpw_LTAl7m0RPaPNwwfcuoXHcaxC92pUXIrFoZ_Ma3gSOMFSJAM9OlXCdbZFrk6_Y1hHgciuDajJqjIsB443weNTvOSLn0eQNnbFqOfyeH27M3YQm7-Pi2ADEeoZV1SqOOzrfQ-BsYwVVlfOEfFGoiJvndSSCuSI-9SqJpIZHlAdCFi8GLAwdeT5TRp_JdmKGkJ_QuPf5UlKZA7DLYtHk3RbcFGo8DlfTRiyFUE4Fx0BjB33oMP-KWvuViyMwJsmL5YcuVcHLNdAAD7iPshMQmqtt8lnf--HfaTazuWTq6nTP1bmpJfmN1DVQCvN4ymIwQq1VJyqnwDq0hqAC0XHiD14fyWIuLFVtGE5d5xbSJLnoN9trM1QQ68dBYYpmf3rGuPidSF3SKprukFr3bkxD81i5MqZdthbKQKxXaX8bauGd4PAb1_dzfSc4HxFwOn6vGIq290kxoTHkS2fRNLfMnKXawtn0693PqMir0zUay7PhXylSCmzDTHFh-7R8NToFFkksE1WOwlhdMGeUV4AZtXnk4WZ36AJ8PFr4fGe3hbD3DqIrE5EUsEvhjjroZ1neArxhRQ2dCMyDWJyYB44uNXmQUoW3AnKHwCG7HMzkMOs29OwMSlSV_j6i_VqSTPiV6Le0bj23y-yg-LyQKYPZKvZGEohrZ1044V3ann-1zmQhSAXatzIcsYRxGVDh_Uw-VkHPsXOJfVtSVYJF1Vdn4cbWUb5sAMpZ9wlpr6ryz3kPXBxmvBPbVnRNeuQ=w1893-h868-s-no-gm?authuser=0)
-
-
-
-## 16：Aigc Toolkit
-
-**简介**：AI 导航网站，月访问量2w左右，可以免费提交。
-
-**网址**：https://www.aigctoolkit.com/
-
-![aigctoolkit](https://lh3.googleusercontent.com/pw/ABLVV85prKTwjJWzxraKJ-0L4GjRereFhpPWWSOainc_M2jsmDgkLL3Oy8-ESisa4cstJJRC9lN2ko5DVbTrZcgFCKCVbYiVqFY06lWQpEqVSJ13RINQMj1b8SqQYcJjsBQJM7s3fcxSuM_-Jwu131hpBRxWRjr2ckdEgpZ-6OkziB3cX9zvK4n3_5tY-m6fF_ZApPQHWu3tSRZiZsJMAX9qojM1KpPfKlNR21hRh4pBFs4ufFv9Zy2GCBBC6u6sOqdrLik4WyY7fb9ZD2pLepgVX8zLCRg7QKd1bf1ixrCSnE0FetRv59j2WC27yLBjUCWh2lvXeI6PQKQ_imL3EAOMqTClub8loLryq9OwYKTuOZLMGbRy0-uHBPRpWM4uvijSHRZBDXw7dmjSNqPfx3hgC8g7E0SHBGAnbY5mcbUIHcSqlKTG0OlZwd8ItYfEBx9Fd4RUDC_uWCo60DslU0SX3MyizYs7Tl7lJ83ktPAc-3tYnKUiI5GpK-Pkg9ltMNmScC1YM4HHUyoZFYzX-fDuXaLMaUFuoN0Wz1ATCOvTYTl4SSkMDVZFQ0WaMB6cZmDyDaSLGZDA5cayEAQK_XaUh1QXwQ3jLPPxVgdHFITHKPoh9OelVJN5_Ls8eZIDUkrH9TbB76enyBL4Io4j-34VJ4RAIrkCnE2rYNnmYBWi135KIfVNJO5hYI4z0WVmpLVbgQvpG2b0Wecbm3SD_434-0VBVlLm58DNpwi4MswkOl1njUoXkMOkN78UqH98qkc16RYfLX_3RqDxczIOKKj22Y9q-xeTnVYRGjN4zKpJc75Sv6qniebKLj8cH7wLMh5ootjetuhs2Cebz6GfnA3zuDyhJdW7R8eRFjBao8f5Y3YTDyYYN-1SilmfYV13HZxTaORdJQ=w1857-h863-s-no-gm?authuser=0)
-
